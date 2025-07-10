@@ -1,3 +1,3 @@
-**Catching Game @ Minute Maid**
-Link to play:
+**Catching Game @ Minute Maid**  
+Link to play:  
 Tags: Astros, baseball
